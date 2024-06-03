@@ -1,0 +1,1 @@
+What tone is this message written in? What are the main points? What can be improved? Be short and concise.
